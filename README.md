@@ -1,1 +1,1 @@
-# beta_core
+# BETA CORE
